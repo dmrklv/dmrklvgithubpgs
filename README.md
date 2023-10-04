@@ -2,13 +2,16 @@
 
 ## А еще, у меня есть кошка :cat2: ***СТЭФАНО4КА*** :cat:  она ~~не очень любит спать на моих подушках~~ 
 * **Вот спит как супермен** ![3](https://github.com/dmrklv/dmrklvgithubpgs/assets/141262438/102aca41-329d-4f3e-baff-e2e26b6c2568)
-* **Вот тут спит как обычная кошка** ![](pic/4.JPG)
+* **Вот тут спит как обычная кошка** ![4](https://github.com/dmrklv/dmrklvgithubpgs/assets/141262438/1ef87373-19c4-4635-a839-db60509b4853)
 
 Еще она любит сидеть как будто она решает какие то важные вопросы
-![](pic/2.JPG)
+![2](https://github.com/dmrklv/dmrklvgithubpgs/assets/141262438/380b3205-d3a9-41af-9c29-927137621faa)
 
 ~~Ну и просто любит кататься на машине~~ (НЕТ)
 
-![](pic/IMG_3153.GIF)
+![IMG_3153 (1)](https://github.com/dmrklv/dmrklvgithubpgs/assets/141262438/365ef469-7f2f-4710-8621-d7e765a25704)
+
+
+
 
 
